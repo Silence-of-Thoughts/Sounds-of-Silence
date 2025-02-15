@@ -9,8 +9,10 @@
 - Taj Bender _felt in Love with Ali in the Year of Psychotic Waltz._
 
 ---
-Silence of Thoughts nutzt aussprüchlich Frieden, Freundschaft und Liebe.
-Triple Rectifier Hartke Ibanez Zildijan Marshall
+Silence of Thoughts nutzt aussprüchlich Frieden, Freundschaft und Liebe
+
+und Mesa-Boogie Triple Rectifier Hartke Marshall Ibanez Zildijan Thomann
+
 
 ---
-(c) 1995 - 2025 - Silence of Thoughts. Während dieser Scheunenproduktion kamen keine Tiere zu schaden.
+(c) 1995 - 2025 - Silence of Thoughts. Während dieser Scheunenproduktion kamen keine Tiere zu schaden. Cus@Zebra.
