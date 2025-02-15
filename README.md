@@ -10,5 +10,6 @@
 
 ---
 Silence of Thoughts nutzt aussprüchlich Frieden, Freundschaft und Liebe.
+Triple Rectifier Hartke Ibanez Zildijan Marshall
 --
 (c) 1995 - 2025 - Silence of Thoughts. Während dieser Scheunenproduktion kamen keine Tiere zu schaden.
