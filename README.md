@@ -9,5 +9,6 @@
 - Taj Bender _felt in Love with Ali in 1993_
 
 ---
-Silence of Thoughts nutzt aussprüchlich Frieden und Liebe.
-Während der Produktion kamen keine Tiere zu schaden.
+Silence of Thoughts nutzt aussprüchlich Frieden, Freundschaft und Liebe.
+
+(c) 1995 - 2025 - Silence of Thought. Während der Produktion kamen keine Tiere zu schaden.
