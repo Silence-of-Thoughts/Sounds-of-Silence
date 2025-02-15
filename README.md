@@ -1,9 +1,9 @@
 # Silence of Thoughts
 ## 
+
 ## Silent Thoughts are
-### Alan Smitheee
+### Alan Guitar Murphey Smitheee
 ### Ali Bengali
 ### Flo Josephus
 ### Taj Bender
-
 ### .. back
