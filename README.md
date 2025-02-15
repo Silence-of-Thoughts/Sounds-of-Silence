@@ -1,9 +1,8 @@
 # Silence of Thoughts
-## 
+## Silent Thoughts are brought to you by
+- Alan _Guitar Murphey_ Smitheee
+- Ali Bengali
+- Flo Josephus
+- Volker of Death
+- Taj Bender
 
-## Silent Thoughts are
-### Alan Guitar Murphey Smitheee
-### Ali Bengali
-### Flo Josephus
-### Taj Bender
-### .. back
