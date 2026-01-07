@@ -10,12 +10,7 @@
 - Winnie Whersdorfer
 
 ## Gears
-- Mesa/Boogie Triple Rectifier
-- Hartke
-- Marshall
-- Ibanez
-- Zildjian
-- ...last but not least Thomann
+Mesa/Boogie, Hartke, Marshall, Ibanez, Zildjian
 
 _*Tags:* Music, Silence of Thoughts, MP3, Germany, German_
 ---
