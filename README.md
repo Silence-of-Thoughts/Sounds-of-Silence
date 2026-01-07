@@ -1,18 +1,17 @@
 # Silence of Thoughts
 
-## Silent Thoughts are brought to you by
-
+## Silent Thoughts were brought to you by
 - Alan _Guitar Murphey_ Smitheee
-- Ali Bengali
-- Flo Josephus
-- Volker of Death
-- Taj Bender _felt in Love with Ali in the Year of Psychotic Waltz._
+- Ali _Hammer of Death_ Bengali
+- Flo _Josephus_ Bengali
+- Papa _rowdy roady_ Bengali
+- Taj _psychotic waltz_ Bender 
+- Volker _of Death_ Bengali
+- Winnie Whersdorfer
 
+## Gears
+Mesa/Boogie, Hartke, Marshall, Ibanez, Zildjian
+
+_*Tags:* Music, Silence of Thoughts, MP3, Germany, German_
 ---
-Silence of Thoughts nutzt aussprüchlich Frieden, Freundschaft und Liebe
-
-und Mesa-Boogie Triple Rectifier Hartke Marshall Ibanez Zildijan Thomann
-
-
----
-(c) 1995 - 2025 - Silence of Thoughts. Während dieser Scheunenproduktion kamen keine Tiere zu schaden. Cus@Zebra.
+(c) 1995 - 2026 - Silence of Thoughts. Während dieser Scheunenproduktion kamen keine Tiere zu schaden. Cus@Zebra.

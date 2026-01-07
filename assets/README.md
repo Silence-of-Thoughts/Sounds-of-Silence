@@ -16,3 +16,5 @@ und Mesa-Boogie Triple Rectifier Hartke Marshall Ibanez Zildijan Thomann
 
 ---
 (c) 1995 - 2025 - Silence of Thoughts. Während dieser Scheunenproduktion kamen keine Tiere zu schaden. Cus@Zebra.
+# README - assets of thoughts
+## Table of contents
