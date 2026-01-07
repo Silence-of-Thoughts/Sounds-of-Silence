@@ -1,5 +1,7 @@
 # Silence of Thoughts
 
+_*Tags:* Music, Silence of Thoughts, MP3, Germany, German_
+
 ## Silent Thoughts are brought to you by
 
 - Alan _Guitar Murphey_ Smitheee
